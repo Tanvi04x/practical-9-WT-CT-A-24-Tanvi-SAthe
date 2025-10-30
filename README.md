@@ -1,1 +1,0 @@
-# practical-9-WT-CT-A-24-Tanvi-SAthe
